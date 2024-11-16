@@ -1,2 +1,1 @@
-# informaticsclub81.github.io
-Test
+# COMING SOON
